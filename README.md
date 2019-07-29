@@ -1,0 +1,2 @@
+# Rapid-Slim
+ Leaving fat off the weight loss program frequently ends in a calorie deficit, so humans without a doubt lost weight on these 0-calorie diets, however they also stopped ingesting the essential fatty acids like omega 3 acids, which might be essential for correct  Rapid Slim health. If a quick weight loss plan tells you to limit critical nutrients for long intervals, it will no longer be a weight loss program to observe.  https://purefitketodietplan.com/rapid-slim/
